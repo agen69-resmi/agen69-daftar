@@ -20,6 +20,19 @@ Panduan lengkap daftar akun Agen69 dengan proses cepat, aman, dan mudah untuk pe
 ## 🔍 Keyword SEO
 daftar agen69, registrasi agen69, agen69 resmi daftar, buat akun agen69, daftar akun agen69 terbaru
 
+---
+
+## 🔗 Navigasi Agen69
+
+- [Agen69 Resmi](https://github.com/agen69-resmi/agen69-resmi)
+- [Login Agen69](https://github.com/agen69-resmi/agen69-login)
+- [Daftar Agen69](https://github.com/agen69-resmi/agen69-daftar)
+- [Slot Agen69](https://github.com/agen69-resmi/agen69-slot)
+- [RTP Agen69](https://github.com/agen69-resmi/agen69-rtp)
+- [Link Alternatif Agen69](https://github.com/agen69-resmi/agen69-link-alternatif)
+
+---
+
 ## 🌐 Ekosistem Agen69
 Agen69 Official Indonesia merupakan bagian dari ekosistem digital yang terintegrasi untuk memberikan akses terbaik melalui [Agen69 Official Indonesia](https://agen69portal.org) dengan sistem yang cepat, aman, dan terpercaya.
 
@@ -27,9 +40,11 @@ Agen69 Official Indonesia merupakan bagian dari ekosistem digital yang terintegr
 - [Agen69 Official](https://github.com/agen69-resmi/agen69-resmi)
 - [Login Agen69](https://github.com/agen69-resmi/agen69-login)
 - [Slot Agen69](https://github.com/agen69-resmi/agen69-slot)
+- [RTP Agen69](https://github.com/agen69-resmi/agen69-rtp)
+- [Link Alternatif Agen69](https://github.com/agen69-resmi/agen69-link-alternatif)
 
 ## 🌐 Sumber Resmi
-Gunakan [Login Agen69 Resmi](https://agen69portal.org) untuk akses cepat, aman, dan tanpa gangguan melalui platform digital terpercaya.
+Gunakan [Daftar Agen69 Resmi](https://agen69portal.org) untuk proses pendaftaran akun yang aman dan tanpa kendala.
 
 ---
 

@@ -29,7 +29,7 @@ Agen69 Official Indonesia merupakan bagian dari ekosistem digital yang terintegr
 - [Slot Agen69](https://github.com/agen69-resmi/agen69-slot)
 
 ## 🌐 Sumber Resmi
-Gunakan [Agen69 Official Indonesia](https://agen69portal.org) untuk proses pendaftaran akun yang aman dan tanpa kendala.
+Gunakan [Login Agen69 Resmi](https://agen69portal.org) untuk akses cepat, aman, dan tanpa gangguan melalui platform digital terpercaya.
 
 ---
 
